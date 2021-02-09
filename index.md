@@ -1,5 +1,1 @@
-## ABOUT ME:
 
-## INTERESTS:
-
-## NEWS:
